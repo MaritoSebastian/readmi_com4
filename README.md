@@ -1,2 +1,2 @@
 # readmi_com4
-prueba Juan Manuel (no tebgo mic)
+prueba Juan Manuel (no tengo mic)
